@@ -1,3 +1,3 @@
 # IP
-Mitric Delia-Maria
+Mitric Delia-Maria &
 Bodale Paul-Beniamin
